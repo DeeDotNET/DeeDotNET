@@ -1,3 +1,3 @@
 <div align="center">
-	<img src="https://file.coffee/u/KkPAtTjsriobhUnpI18ja.jpg"/>
+	<img src="https://file.coffee/u/hy9FbcDsiJYnfSl-AvCkM.jpg"/>
 </div>
